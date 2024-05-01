@@ -5,7 +5,7 @@
 - 💬 Ask me about Web developmement
 - 📫 How to reach me: ahbabaziz5@gmail.com
 - 😄 Pronouns: ahbaab 
-- ⚡ Fun fact: a little bits serious man
+- ⚡ Fun fact: a little bit serious man
 <!--
 
 
